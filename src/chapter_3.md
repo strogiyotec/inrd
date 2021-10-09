@@ -10,3 +10,4 @@ Apart from 'M', I had few friends from my neigboorhood. 'M' was emo and didn't l
 When I was 6 years old, me and my best friend from a neighboor house tried to get some change from parents and spend then in computer clubs where you were allowed to rent a PC for as much hours as you can afford. Me and my friend would join our PC's using LAN and would play Warcraft 3. I still think it was the greatest strategy human being's ever made.
 
 At age 7 my father bought me a PC. Pentium 4 with 1 Gig of Ram. It was able to handle all the games available in the market. I spend whole week playing all preinstalled games there, but there was something different, emotions were not the same. When you play with your buddies and share emotions or discuss a strategy to win auto generated enemies, you can't get the same experience playing by your own. And so I kept going to clubs with my friend.
+
