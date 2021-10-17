@@ -1,11 +1,11 @@
 # Preface
 ## I've never read Don Quixote
-### It started in September
+### The cold day in September
 I told myself back then , you have to remember the day but I don't.
 It happened in September for sure because I just started my first year in 
 University, it was a weekend, probably Sunday and as all other days back then 
 I didn't have much to do on weekends. Staying at home, watching something on Youtube and 
-planning to start cleaning because your apartment has to be cleaned on weekends.
+planning to start cleaning because your apartment has to be cleaned once per week.
 The clock was showing 12 P.M so it's almost lunch time, and suddenly I got a phone call 
 from an unknown number. I usually don't respond to them ,add the number and see the caller in Whatsapp, If I can recognize a person by photo then I will call back, but back then something told me to peek it up, it was a weekend for god sake, bad people have other things to do on their free time. It was a male's voice, a man I once met but didn't have a chance to talk too much.After returning greetings he told a news, a news that I still don't understand how to react to.
 I said thanks, really? Well I didn't know how to respond. After hanging up I was silent. What are people supposed to feel in such situations ? For me it was a fear , the same fear you feel at work wandering if you forgot to lock the door in your apartment when you were leaving.
@@ -17,7 +17,7 @@ didn't understand, a friend who was here and so the world didn't seem to be
 so rude and nasty place. I didn't call his parents , I didn't show up for a funeral. Neither did I visit his grave. How could I ? This guy just abandoned me in this cruel world. I didn't tell my mom or friends , none of them knew 'A'. 
 
 I opened my eyes, it's 3 A.M .I cried for a few hours and fell asleep for
-another 10. When your best friend died is a great excuse to skip university the next morning right  ? I got my shoes and went out to get some fresh air.
+another 10. I got my shoes and went out to get some fresh air.
 An emptiness filled the streets, apart from some drunk guys out there it was a 
 silent and peaceful night. I was walking , thinking. I didn't feel really comfortable with my friends, neither could I easily make some. A world felt like a new school for a kid where everybody knows each other and have small groups based on general interests and here you are with no clue how to join any but you really want to.
 In a world like this 'A' made a difference, a guy who despite an age difference
